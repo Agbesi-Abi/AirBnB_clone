@@ -1,2 +1,0 @@
-this are the images
-
